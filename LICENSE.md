@@ -1,4 +1,4 @@
-# 
+# Melhor Ollama extensões. Com análise de documentos e preservação de privacidade — otimizado para máximo desempenho e eficiência.
 
 
 
